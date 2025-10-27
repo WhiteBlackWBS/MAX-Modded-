@@ -29,4 +29,4 @@ https://t.me/White_BlackBM
 ! HOW TO BECOME A MOD SPONSOR? !
 
 Напишите мне для того, что-бы быть спонсором и что для этого нужно
-https://t.me/White_BlackB
+https://t.me/White_BlackBM
